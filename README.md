@@ -1,2 +1,6 @@
 # new-birth
 first attempt *fingers crossed*
+
+*sigh* new to coding... 
+hoping it turns out alright...
+naff at haiku's.
